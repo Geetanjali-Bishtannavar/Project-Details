@@ -1,5 +1,6 @@
 
 Geetanjali Bishtannavar
+
 Full Stack Developer Gothenburg, Sweden Phone: +46 762037821
 Email: geetanjalirb1197@gmail.com
 LinkedIn: https://www.linkedin.com/in/geetanjali-bishtannavar-787657259/
